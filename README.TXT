@@ -1,0 +1,1 @@
+Storna internetowa salonu fryzjerskiego, zrealizowana na potrzeby zaliczenia na studiach. 
